@@ -1,4 +1,4 @@
-# Hey, I'm Chiamaka Ojimba 👋🏽
+# Hey, I'm Amaka Ojimba 👋🏽
 
 **Customer Success Professional → Aspiring GRC Professional 🔐**
 
